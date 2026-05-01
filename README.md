@@ -7,7 +7,7 @@
 
 # BYI . . .
 ### pref names :
-d3rlord3 , derek , ivan , mantis , bassie , any ( platonic ) nickname ( probably missing some but theres a lot of characters i kin so theyre just all here,, ok )
+ivan, any nickname also works
 ***
 ### info :
 taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it
@@ -15,10 +15,11 @@ taken by my LOVELY partner collie :D ( they do not have a github , but she does 
 alexithymia , misophonia
 
 lesbian , agender , and asexual
+
+a few health issues that give us some issues with breathing and heart stuff
 ***
 ### fandoms :
 - bad things ( i am the no.1 fan trust me i love bad things )
-- grace ( I DONT SUPPORT SIMON )
 - regretavator
 - wonderend0
 - studio investigrave
