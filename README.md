@@ -9,3 +9,5 @@ i block freely
 heavily suspected bpd and diagnosed anxiety
 
 always iw(e)c unless friend ok
+
+i usually take really long breaks from stuff especially pony town
