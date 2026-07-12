@@ -1,12 +1,12 @@
 literally the biggest bad things fan to ever exist
 
-really heavy uu wemmbu and ivan kin
+ivan fictive, doubles dni
 
 system
 
 i block freely
 
-heavily suspected bpd and diagnosed anxiety
+heavily suspected bpd and diagnosed gad + mdd
 
 always iw(e)c unless friend ok
 
